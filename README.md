@@ -1,7 +1,7 @@
       𝙬𝙚𝙡𝙘𝙤𝙢𝙚 𝙩𝙤 𝙢𝙮 𝙧𝙚𝙥𝙤𝙨𝙞𝙩𝙤𝙧𝙮! 
       
 Hi guys, I am Pradeep
-An coding and  web language interested
+an coding and  web language interested
 person.  
 Here we code together and learn coding. 
 
